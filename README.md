@@ -1,1 +1,1 @@
-# kurs_cpp_podstawowy
+# kussssrs_cpp_podstawowy
